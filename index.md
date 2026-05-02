@@ -5,6 +5,6 @@ title: Home
 
 # Rifrazione Critica
 
-Benvenuto nel blog.
+Benvenuti in Rifrazione Critica.
 
-Qui esploro il rapporto tra intelligenza umana e artificiale, tra struttura e percezione.
+Articoli di filosofia, politica, arte
