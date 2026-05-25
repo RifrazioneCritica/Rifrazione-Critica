@@ -1,5 +1,3 @@
-"Orientarsi nell'infosfera (parte1)"
-
 Alfonso Gabino
 
 > "Quando il sole alzò la testa tra le spalle della notte
