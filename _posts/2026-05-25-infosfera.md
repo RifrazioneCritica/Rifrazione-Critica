@@ -1,16 +1,18 @@
 title: "Orientarsi nell'infosfera (parte1)"
 author: Alfonso Gabino
-> Quando il sole alzò la testa tra le spalle della notte
+> "Quando il sole alzò la testa tra le spalle della notte
 > C'erano solo cani e fumo e tende capovolte
 > Tirai una freccia in cielo
 > Per farlo respirare
 > Tirai una freccia al vento
 > Per farlo sanguinare
-> La terza freccia cercala sul fondo del Sand Creek
+> La terza freccia cercala sul fondo del Sand Creek"
 >
 > — Fabrizio De Andrè
+> 
 Davanti alle immagini di distruzione a cui negli ultimi anni, fa paura a dirlo, ci stiamo abituando, ci ritroviamo spesso a sentirci oltre che sconcertati anche impotenti. Ci chiediamo se possiamo farci qualcosa e come. Se quanto ne possiamo scrivere, dire, pensare, dalle aule accademiche al bar, passando per i giornali e i talk show televisivi, possa mai servire davvero a qualcosa, oppure tutto è solo produzione di rumore di sottofondo. Per quanto la rabbia, la frustrazione e il senso di impotenza designano le persone fuori dal perimetro di guerra come spettatori inermi, barricati dietro a uno schermo a consumare inutilmente una tastiera, la mediazione culturale resta l'unico strumento a cui può essere affidata la volontà di ricostruire. La forza fisica non permette di ricostruire una città martoriata dalle bombe, né di riportare in salute un corpo lacerato dalla malattia. Tramite le parole, però, una ricostruzione diventa possibile. Si obietterà che sul registro simbolico tutto è possibile, l'intero mondo della fantascienza diventa possibile. L'obiezione è lecita e per questo merita approfondimento. Cercheremo di farlo nelle righe che seguiranno, cogliendo l'occasione per rendere omaggio a chi usa le parole per ricostruire, preoccupandosi di estrarle dall'esperienza viva, dal contesto autentico, così che possano conservare nella memoria, insieme alla speranza della ricostruzione, anche i segni lasciati dalla distruzione.
-> Tu distruggi, io ci costruisco intorno.
+>
+> "Tu distruggi, io ci costruisco intorno".
 >
 > — John Lennon
 La ricostruzione per mezzo delle parole è l'unico modo per rimettere insieme i pezzi e poter andare avanti, evitando, magari, di ricadere nei nostri errori. Quando un bambino apprende ad andare in bicicletta, le cadute, o perlomeno le quasi cadute, sono inevitabili. La ricostruzione a parole fatta da chi lo sta seguendo o da esso stesso "prova a spingere subito con l'altro piede", "non toccare il freno quando ti avvii", "tieni lo sterzo dritto" ecc. permette, pian piano, l'apprendimento. Nelle prime cadute e nelle parole servite a ricostruire quegli errori si raggiunge, finalmente, l'equilibrio necessario. Le parole appartengono a una grammatica pubblica. Ricostruire a parole avvenimenti, storie, pensieri e teorie vuol dire consegnarli a una dimensione pubblica. La dimensione pubblica permette di ricostruire e preservare i fatti che costruiscono la realtà.
