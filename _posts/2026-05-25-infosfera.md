@@ -1,11 +1,17 @@
 title: "Orientarsi nell'infosfera (parte1)"
 author: Alfonso Gabino
 > "Quando il sole alzò la testa tra le spalle della notte
+> 
 > C'erano solo cani e fumo e tende capovolte
+> 
 > Tirai una freccia in cielo
+> 
 > Per farlo respirare
+> 
 > Tirai una freccia al vento
+> 
 > Per farlo sanguinare
+> 
 > La terza freccia cercala sul fondo del Sand Creek"
 >
 > — Fabrizio De Andrè
@@ -21,12 +27,19 @@ Secondo Luciano Floridi, le persone di questa epoca vivono nell'infosfera. Possi
 Il concetto di Floridi, che certo non manca di fondamento, apre le porte però, a mio avviso, a un conformismo dell'informazione. Il rischio è che ogni informazione venga captata come l'ennesimo mattone utile solo a contribuire all'architettura dell'ambiente virtuale/globale. Detta in altri termini: se tutto è informazione, se tutto viene mescolato nel flusso che sfocia nell'oceano di dati dell'ambiente globale, cosa distingue la testimonianza di un soldato sul campo, da un video della guerra simulato dall'intelligenza artificiale? E soprattutto perché gli eserciti più potenti al mondo continuano a temere chi si reca sul campo senza armi, ma con taccuino, microfono e telecamera?
 
 > "Il conformista
+> 
 > È uno che di solito sta sempre dalla parte giusta
+> 
 > Il conformista
+> 
 > Ha tutte le risposte belle chiare dentro la sua testa
+> 
 > È un concentrato di opinioni
+> 
 > Che tiene sotto il braccio due o tre quotidiani
+> 
 > E quando ha voglia di pensare pensa per sentito dire
+> 
 > Forse da buon opportunista".
 >
 > — Giorgio Gaber
