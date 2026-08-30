@@ -1,3 +1,9 @@
+---
+layout: post
+title: "Civiltà e baby gang. Sulla proposta psicoanalitica di Maurizio Montanari"
+date: 2026-08-30
+---
+
 Domenico Licciardi
 
 Leggiamo, sul Fatto Quotidiano (30/08/2026), un articolo di Maurizio Montanari sul fenomeno delle baby gang. Nella piena comprensione del suo scopo - suggerire alla sinistra una proposta competente -, proviamo ad analizzare il fenomeno da un punto di vista critico, per domandarci: posto che la scuola sia oggi nelle condizioni di trasmettere il senso della legge, è davvero ciò di cui le ragazze e i ragazzi hanno bisogno?
